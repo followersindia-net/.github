@@ -205,6 +205,7 @@ Want a detailed walkthrough of how SMM panels work, what to check before orderin
 | 📖 Blog | [Followers India Blog](https://followersindia.net/blog) |
 | ✍️ Medium Guide | [Cheapest SMM Panel in India (2026) Guide](https://medium.com/@followers.india0/cheapest-smm-panel-in-india-2026-a-practical-guide-to-growing-on-instagram-youtube-and-telegram-97b4f4d926f7) |
 | ✈️ Telegram | [@followersindia_updates](https://t.me/followersindia_updates) |
+| 💬 Quora | [Followers India on Quora](https://followersindia.quora.com) |
 | 📘 Facebook | [Followers India Official](https://www.facebook.com/followersindiaofficial) |
 | 📧 Email | [followers.india0@gmail.com](mailto:followers.india0@gmail.com) |
 
